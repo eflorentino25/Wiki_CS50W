@@ -1,0 +1,1 @@
+Young Midoriya wants to become the best hero in the superhuman society.

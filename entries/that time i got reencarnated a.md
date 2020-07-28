@@ -1,0 +1,1 @@
+A man dies, after being reencarnated as a slime in a different world he has to fight his way through to survive.
